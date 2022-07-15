@@ -5,6 +5,6 @@
 * [ ] Купили хлеба
 * [x] Сделать дз
 
-[![kartinka](https://kot-pes.com/wp-content/uploads/2016/09/image6-3.jpeg)](https://www.youtube.com/watch?v=zghOwqt4v3c)
+[![Whole Lotta Love](https://i.discogs.com/05jdR9Kvd6xHnVv2AvR0fOAlFu7KioVlIbQmZdXlahg/rs:fit/g:sm/q:90/h:600/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTUxMjcw/ODItMTQ2MjkwMzQ3/My0yMzY2LmpwZWc.jpeg)](https://youtu.be/HQmmM_qwG4k)
 
 Всё будет хорошо! :smiley:
