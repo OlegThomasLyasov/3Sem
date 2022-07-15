@@ -7,4 +7,8 @@
 
 [![kartinka](https://kot-pes.com/wp-content/uploads/2016/09/image6-3.jpeg)](https://www.youtube.com/watch?v=zghOwqt4v3c)
 
-Всё будет хорошо! :smiley:
+Всё будет хорошо!
+# а потом ещё лучше!!!
+
+ :smiley:
+# а потом как в сказке, чем дальше, тем страшнее...
